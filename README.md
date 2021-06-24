@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Arsanias
+- 👋 Hi, I’m @Arsanias from Germany with turkish roots.
 
 - 👀 I’m interested in languages, bodybuilding and playing music instruments but my biggest passion is chinese astrology. 
 
